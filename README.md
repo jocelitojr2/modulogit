@@ -1,1 +1,1 @@
-B7Web Git/GitHub (Alterado e atualizado!)
+B7Web Git/GitHub
